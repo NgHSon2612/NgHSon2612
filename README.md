@@ -9,7 +9,7 @@
 ## Contact
 
 - **Email**: [nhson26122004@gmail.com](mailto:nhson26122004@gmail.com)
-- **Facebook**: [facebook.com/profile.php?id=61559957188237](https://www.facebook.com/profile.php?id=61559957188237)
+- **Facebook**: 
 
 
 <!---
